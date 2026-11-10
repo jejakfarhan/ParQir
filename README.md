@@ -1,1 +1,0 @@
-# Berpikir-Komputasi-ITB
